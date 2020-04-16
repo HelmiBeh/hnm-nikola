@@ -64,15 +64,15 @@ Commercial
 
 * 600€ (zzgl. 19% MwSt)
 * für Unternehmen allgemein
-* für Sponsoren ist ein größerer Stand im Sponsoring-Betrag erhalten. Siehe Sponsoren_.
+* für Sponsoren ist ein größerer Stand im Sponsoring-Betrag enthalten. Siehe Sponsoren_.
 
 
 Aktionsflächen
 ---------------
 
-Vorrausichtlich wird es wieder Aktionsflächen geben, die von allen Teilnehmern genutzt werden können, wenn dies vom Programm her passt.
+Voraussichtlich wird es wieder Aktionsflächen geben, die von allen Teilnehmern genutzt werden können, wenn dies vom Programm her passt.
 
-Beispielsweise gab es RC-Flächen für fernsgesteurte Fahrzeuge. Wenn Ihr Ideen oder Vorschläge habt, sprecht uns an.
+Beispielsweise gab es RC-Flächen für ferngesteuerte Fahrzeuge. Wenn Ihr Ideen oder Vorschläge habt, sprecht uns an.
 
 
 
